@@ -1,0 +1,1 @@
+# Proje-FLO-Magazacilik-ve-Pazarlama-A.S.-Microsoft-Power-BI-ile-Veri-Gorsellestirme
